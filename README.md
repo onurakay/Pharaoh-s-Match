@@ -1,1 +1,1 @@
-![pharaohs-match-gameplay](https://github.com/user-attachments/assets/d625b074-f793-4e9f-a4d2-fc8126e6c4a3)
+![pharaohs-match-gameplay](https://github.com/user-attachments/assets/0f9cd6e0-b5e6-4382-bdc2-ee01b7a3d3c3)
